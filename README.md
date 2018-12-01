@@ -1,5 +1,5 @@
 ### 知识就是力量
-第一季
+[官网-第一季](https://www.igetget.com/talkshow)
 
 本仓库所有信息  
 均出自网络公开内容  
